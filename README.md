@@ -563,7 +563,7 @@ For a limited time, you can take advantage of the early bird discount for MovieR
 <p><strong>MovieReelAI OTO 7: KoinCart</strong>
 <a href="https://jvz3.com/c/672499/415702/?tid=4U" target="_blank" rel="nofollow noopener noreferrer"><strong>&gt;&gt;&gt;Grab Your Early Bird Discount</strong></a>
 
-<span style="font-family: helvetica, arial, sans-serif;"><strong>Step 2:</strong> After you complete the order, send [the receipt ID] in a message to my email at <span style="color: #ff0000;"><strong>support@williamreview.com</strong></span>. You Will Get ALL my Bonuses and REMEMBER to hit me through email to confirm that you had done step 2. You will get my Bonuses within 12 hours.</span>
+<span style="font-family: helvetica, arial, sans-serif;"><strong>Step 2:</strong> After you complete the order, send [the receipt ID] in a message to my email at <span style="color: #ff0000;"><strong>support@williamreview.com</strong></span>. You Will Get ALL my Bonuses. REMEMBER to hit me through email to confirm that you had done step 2. You will get my Bonuses within 12 hours.</span>
 
 <span style="font-family: helvetica, arial, sans-serif;">On the checkout page, move your mouse to the following icon and make sure you see my Aff ID <strong>(<mark><span style="color: #ff0000;">672499 – William Johnson</span></mark>)</strong> on the checkout page. If you don’t see it, clear your cookies in your web browser (Ctrl + Shift + Delete).</span>
 
